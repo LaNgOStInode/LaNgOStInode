@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @LaNgOStInode, also known as LaNgO!
+- 👀 I’m interested in gaming and progamming.
+- 🌱 I’m currently learning how to make web pages with HTML and CSS.
+- 💞️ I’m looking to collaborate on a news web page for a game I play called drednot.io
+- 📫 You can reach me via Discord (LaNgOStInO#0375)
+- 🎮 If possible, I want to be able to host things I make on my profile so it's easy for everyone to access.
+- 👍 Thanks for looking at my profile!
